@@ -11,4 +11,4 @@ And so on.
 
 More edits!
 
-More changes! I hate changes.
+More changes! I love changes.
